@@ -1,14 +1,14 @@
 ## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=FF00FF&lines=𝚆𝙴𝙻𝙲𝙾𝙼𝙴+𝚃𝙾+𝚀𝚄𝙴𝙴𝙽+𝙴𝙻𝙸𝚂𝙰+𝚆𝙰+𝙱𝙾𝚃+𝚁𝙴𝙿𝙾.;𝙲𝚁𝙴𝙰𝚃𝙴𝙳+𝙱𝚈+𝙳𝙰𝚁𝙺+𝙼𝙰𝙺𝙴𝚁+𝙾𝙵𝙲;𝚃𝙷𝙸𝚂+𝙸𝚂+𝙰+𝚂𝙸𝙼𝙿𝙻𝙴+𝙱𝙾𝚃;𝙰𝙽𝙳+𝙸𝙽𝙲𝙻𝚄𝙳𝙴+𝙼𝙾𝚁𝙴+𝙵𝙴𝙰𝚃𝚄𝚁𝙴𝚂;𝘛𝘏𝘈𝘕𝘒𝘚+𝘍𝙾𝚁+𝘝𝘐𝘚𝘐𝘛𝘐𝘕𝘎+𝘔𝘠+𝘎𝘐𝘛)](https://git.io/typing-svg)
 
 <div align="center">
-  <img src="https://i.ibb.co/ZWctf3M/Queen-Elisa-Git-Lo-Go.jpg" width="300" height="300">
+  <img src="https://ibb.co/sqt5ftV/Queen-Elisa-Git-Lo-Go.jpg" width="300" height="300">
   
 # 🧚 ◍ Magic Speel MD - V3 ◍ 🧚
 <div align="center">
 Queen Elisa is simple Multi divece whatsapp bot in srilanka Made By DarkMaker Base is tuna bot. 
 
 <div align="left">
-
+Hu
 
 ### VISIT QUEEN ELISA WEBSITE
 
@@ -43,17 +43,4 @@ Queen Elisa is simple Multi divece whatsapp bot in srilanka Made By DarkMaker Ba
 ## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=FFFF00&lines=If+you+think+this+bot+is+not+good;deploy+another+bot+you+like;If+you+become+Question+about+bot;join+our+Whatsapp+support+group;to+solve+it+♥️)](https://git.io/typing-svg)
 #### 𝙵𝚁𝙾 𝙼𝙾𝚁𝙴 
 + [`𝙹𝙾𝙸𝙽 𝙷𝙴𝙻𝙿 𝙶𝚁𝙾𝚄𝙿`](https://chat.whatsapp.com/CLmdE3eOCZY7LxWTp4y1Ww) 
-+ [`𝙲𝙾𝙽𝚃𝙰𝙲𝚃 𝙾𝚆𝙽𝙴𝚁`](https://wa.me/917736701984?text=From_Magic_Speel_Md_Repo💃)
-
-#### ```TOTAL REPO VIEWS 🧚```
-![Visitor Count](https://profile-counter.glitch.me/darkmakerofc/count.svg)
-# 
-# 
-# 
- 
-``` THANKS TO  ALL HELPERS 💞```
-+ [𝚂𝙻 𝚁𝙴𝙰𝙻𝚃𝙴𝙲𝙷]() | For website
-+ [𝚂𝙰𝙽𝚄𝚆𝙰]()  | Helps
-+ [𝚃𝙷𝙸𝙽𝚄𝚁𝙰]()  | Helps
-+ [𝙸𝚂𝚄𝚁𝚄]() | Helps
-
++ [`𝙲𝙾𝙽𝚃𝙰𝙲𝚃 𝙾𝚆𝙽𝙴𝚁`](https://wa.me/917736701984?text=From_Magic_Speel_Md_Repo
