@@ -3,7 +3,7 @@
 <div align="center">
   <img src="https://i.ibb.co/ZWctf3M/Queen-Elisa-Git-Lo-Go.jpg" width="300" height="300">
   
-# 🧚 ◍ Queen Elisa MD - V2 ◍ 🧚
+# 🧚 ◍ Magic Speel MD - V3 ◍ 🧚
 <div align="center">
 Queen Elisa is simple Multi divece whatsapp bot in srilanka Made By DarkMaker Base is tuna bot. 
 
